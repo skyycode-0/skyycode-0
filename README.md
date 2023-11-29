@@ -2,4 +2,7 @@
 
 i'm sky.
 
-i'll be back.
+hold him for a second while i'll be back.
+
+   👌
+🐕‍🦺
