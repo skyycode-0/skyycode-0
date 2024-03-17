@@ -2,6 +2,8 @@
 
 i'm sky.
 
-hold him for a second while i'll be back.
+i love nature and dogs. also hardware and code.
+
+by the way, watch him while i'm away.
 
 🐕‍🦺
