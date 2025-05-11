@@ -1,7 +1,5 @@
-# Hey there.
+# hey there.
 
-i'm sky.
-i love nature and dogs. also hardware and code.
-by the way, watch him while i'm away.
+i'm skyy. tinkering around with docker containers and managing servers as of the moment.
 
-- 🐕‍🦺
+- 🌿
